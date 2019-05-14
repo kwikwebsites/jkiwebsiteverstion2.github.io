@@ -1,1 +1,0 @@
-# jkiwebsiteverstion2.github.io
